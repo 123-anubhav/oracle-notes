@@ -1,2 +1,2 @@
 # oracle-notes
-orace notes [ murli &amp; shiva chaitanya sir ]
+orace notes [ murli sir &amp; shiva chaitanya sir ]
